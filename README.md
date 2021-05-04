@@ -47,9 +47,7 @@ On the other hand, he needs a valid current account with online access if he wan
       </p>
 
       <h2
-        id="JokaRoom Casino - always a proven means of suppliers
-"
-      >
+        id="JokaRoom Casino - always a proven means of suppliers">
         JokaRoom Casino - always a proven means of suppliers
       </h2>
       <p>
